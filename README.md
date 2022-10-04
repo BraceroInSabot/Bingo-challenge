@@ -46,9 +46,13 @@ Before the game starts, the group must choose up to 25 challenges, and mannualy 
 </ol>
 
 ## Meta 
-
-Guilherme Bracero Gonzales 
 <br>
-Instagram - [Bracer](https://instagram.com/guilhermebracero)
+
+## Guilherme Bracero Gonzales 
+
+<br>
+LinkedIN - [Guilherme Bracero](https://www.linkedin.com/in/guilherme-bracero/)
+<br>
+Instagram - [Bracero](https://instagram.com/guilhermebracero)
 <br>
 Email - [guibragon@gmail.com](www.gmail.com) 
